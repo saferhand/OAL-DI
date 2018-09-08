@@ -5,4 +5,4 @@ Mail: 814202744@qq.com (I will send you a copy in one work day. Academic always 
 
 The code will be public once our paper has been published. 
 
-Hoping your opinions.
+Hoping for your suggestions and opinions.
